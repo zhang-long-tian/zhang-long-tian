@@ -1,7 +1,7 @@
 ### `Hi there 👋`
 ### `nice to meet you🤝 `
 ### PISCES Birth:2001.2.24🐍
-张龑(Mark)，a univesity student ,20grade  
+张栩鸣(Mark)，a univesity student ,20grade  
 character：optimistic👨‍🚀    
 Now,I am single. Favourite color:green and blue   
 I only learn a bit programming language.  
